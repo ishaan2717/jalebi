@@ -1,0 +1,1 @@
+You can reheat in convection microwaves to retain crispiness. If you have a standard microwave, you can reheat them for a maximum of 15 seconds before they get soggy. Prepare hot sugar syrup and dunk your jalebi in it repeatedly. They will remain crisp, taste even better, and be warm enough to eat.
